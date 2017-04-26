@@ -1,1 +1,7 @@
-![img](https://raw.githubusercontent.com/znnnfff/ymavi/master/0e810055b319ebc485240b528026cffc1c1716c8.jpg)
+# Ymavi
+
+**半路出家的程序员，以后总会上传点东西的，暂时没有**
+
+  
+
+
